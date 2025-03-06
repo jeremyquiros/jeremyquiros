@@ -1,4 +1,4 @@
-![wallpapersden com_cybersecurity-core_1927x1080](https://github.com/user-attachments/assets/b90345d4-9dc4-46a3-871f-7994cc0cf3c0)
+![wallpapersden com_cybersecurity-core_1927x1080 - Copy](https://github.com/user-attachments/assets/283f1b03-d67c-4dc3-a58e-17e8a2bbf72d)
 
 ## Hi there 👋
 
